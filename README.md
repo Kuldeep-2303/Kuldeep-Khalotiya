@@ -1,2 +1,0 @@
-# Kuldeep-Khalotiya
-Profile README
